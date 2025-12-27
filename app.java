@@ -8,5 +8,4 @@ i am proud og you misss bhavani
 try with a hope, dont lose hope
   everything will come at right moment
   he is not interested with you anymore 
-just forget him asap
   just love yourself as much as you can
